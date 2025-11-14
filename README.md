@@ -1,4 +1,4 @@
-# Política de Privacidade – Bot Educacional P.A.S.M.E.M.
+# Política de Privacidade — P.A.S.M.E.M.
 
 ## 1. Quem é o responsável por tratar os seus dados?
 
